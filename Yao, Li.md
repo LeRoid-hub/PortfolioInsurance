@@ -1,0 +1,4 @@
+> European Journal of Research and Reflection in Management Sciences Vol. 4 No. 2, 2016 p60
+> - Yuan Yao & Li Li
+> 
+>http://idpublications.org/wp-content/uploads/2016/03/Full-Paper-PORTFOLIO-INSURANCE-WITH-A-DYNAMIC-RISK-MULTIPLIER-BASED-ON-PRICE-FLUCTUATION.pdf 
