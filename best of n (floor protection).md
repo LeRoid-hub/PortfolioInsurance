@@ -1,4 +1,4 @@
-> Ist eine [[Option]]
+> Ist eine [[Quellen]]
 > 2 oder mehr [[Assets]]
 
 ## Arten der Rainbow options
